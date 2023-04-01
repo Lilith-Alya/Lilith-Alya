@@ -1,5 +1,5 @@
+![ChubbAbi](https://user-images.githubusercontent.com/98964748/229322911-467eb5b6-ae41-4494-9666-4b82e342dc94.gif)<br>
 ![Profile views](https://gpvc.arturio.dev/Lilith-Alya)
-
    <div align="center">
    <img align="center" alt="Alice-fofa" height="60%" width="60%" src="https://cdn.discordapp.com/attachments/927213659317481512/1090394496526717051/pngegg.png"></div>
    
